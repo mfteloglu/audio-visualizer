@@ -1,1 +1,1 @@
-![hippo](https://media3.giphy.com/media/aUovxH8Vf9qDu/giphy.gif)
+![example](https://im6.ezgif.com/tmp/ezgif-6-30e73ffa9547.gif)
